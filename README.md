@@ -1,0 +1,2 @@
+# newideasnewchanges
+ba linh tinh
